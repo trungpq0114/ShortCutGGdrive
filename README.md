@@ -14,7 +14,7 @@ Script này giúp bạn:
 
 ## Demo
 
-Video demo: [https://www.tiktok.com/@trungpq.0114/video/7583340865469369618?is_from_webapp=1&sender_device=pc&web_id=7392262522143294983](https://www.tiktok.com/@trungpq.0114/video/7583340865469369618)
+Video demo: [Link tiktok nha](https://www.tiktok.com/@trungpq.0114/video/7583340865469369618)
 
 ---
 
